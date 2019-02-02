@@ -1,3 +1,3 @@
 # projekt2luty
 
-Nie ogarniam :P 
+Tak to jest
